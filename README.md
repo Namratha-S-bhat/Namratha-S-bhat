@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Namratha-S-bhat
 - 👀 I’m interested in coding,designing and experimenting
-- 🌱 I’m currently persuing M.C.A in NIE,Mysore
+- 🌱 I’m a M.C.A Graduate
 - 💞️ I’m looking to collaborate on projects
 
 
